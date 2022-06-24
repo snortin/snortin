@@ -1,1 +1,1 @@
-🤓 im racist
+i code bullshit
